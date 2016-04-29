@@ -1,3 +1,5 @@
+       WARNING: The following is so stupid it may be toxic to some viewers
+       
        Thank you based god.
                      - Jesus Christ
        Get on the bus to FLAVORTOWN

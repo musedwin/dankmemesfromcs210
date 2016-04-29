@@ -1,7 +1,7 @@
        Thank you based god.
                      - Jesus Christ
        Get on the bus to FLAVORTOWN
-       SHREK
+       The SHREKENING
                          Once upon a time there was a lovely 
                          princess. But she had an enchantment 
                          upon her of a fearful sort which could 

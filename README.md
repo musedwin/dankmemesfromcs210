@@ -357,6 +357,7 @@
                          Oh! And it is lovely! Just beautiful. 
                          You know you are quite a decorator. 
                          It's amazing what you've done with such 
+                         BUSH DID 9/11
                          a modest budget. I like that boulder. 
                          That is a nice boulder. I guess you 
                          don't entertain much, do you?
@@ -369,13 +370,14 @@
                          we have in common. Like I hate it when 
                          you got somebody in your face. You've 
                          trying to give them a hint, and they 
-                         won't leave. There's that awkward silence. 
+                         won't leave. There's that awkward silence.
+                         9/11 WAS A CONSPSIRACY
                          (awkward silence) Can I stay with you?
  
                          
                                      SHREK
                          Uh, what?
-
+              HITLER WAS ALRIGHT
                                      DONKEY
                          Can I stay with you, please?
 
